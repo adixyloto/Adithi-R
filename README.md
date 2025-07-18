@@ -6,4 +6,4 @@ Engineering Student | Aspiring Robotics Engineer | Python & Embedded Systems Ent
 📚 Learning daily | 🌱 Passionate about tech, automation & AI  
 🚀 Open to internships, collaborations, and learning opportunities
 
-📍 India | Let's connect: [LinkedIn Profile](www.linkedin.com/in/adithi-r-008891298)
+📍 India | Let's connect: [LinkedIn Profile](https://www.linkedin.com/in/adithi-r-008891298)
